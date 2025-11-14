@@ -181,4 +181,4 @@ Connect with me:
 
 GitHub: https://github.com/Naveenk458
 
-LinkedIn: linkedin.com/in/naveen-k-2bbb81232
+LinkedIn: https://www.linkedin.com/in/naveen-k-2bbb81232
